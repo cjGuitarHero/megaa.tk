@@ -1,2 +1,1 @@
-# megaa.tk
- 
+http://megaa.tk/
